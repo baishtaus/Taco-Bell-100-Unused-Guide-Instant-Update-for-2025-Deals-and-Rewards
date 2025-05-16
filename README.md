@@ -6,6 +6,7 @@ The term *Taco Bell 100* has surged in popularity among fast food lovers and dea
 
 [Get Taco Bell 100](https://smrturl.co/a/s4f603f7e94/91?s1=)
 
+[Get Gift Card of Your Choice](https://smrturl.co/a/s4f603f7e94/10953?s1=)
 
 **What Does Taco Bell 100 Really Mean?**
 
