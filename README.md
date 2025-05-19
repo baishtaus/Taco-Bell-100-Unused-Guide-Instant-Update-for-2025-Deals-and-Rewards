@@ -4,6 +4,8 @@
 
 The term *Taco Bell 100* has surged in popularity among fast food lovers and deal hunters. Whether you’re a fan of the Doritos Locos Tacos or simply searching for a generous gift card, the phrase usually refers to a **\$100 Taco Bell gift card**, loyalty rewards, or limited promotions that offer tremendous value for Taco Bell fans. In this instant update, we explore how you can benefit from Taco Bell 100 offers in 2025.
 
+[get a $100 TChick Fil](https://smrturl.co/a/s4f603f7e94/7?s1)
+
 [Get Taco Bell 100](https://smrturl.co/a/s4f603f7e94/91?s1=)
 
 [Get Gift Card of Your Choice](https://smrturl.co/a/s4f603f7e94/10953?s1=)
